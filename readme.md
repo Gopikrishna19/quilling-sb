@@ -1,5 +1,3 @@
-# SB Quilling & Crafts
-
 ## 🚧🚧 UNDER CONSTRUCTION 🚧🚧
 
 Welcome to SB Quilling & Crafts. We are located in Illinois, servicing the Quad Cities Area.
